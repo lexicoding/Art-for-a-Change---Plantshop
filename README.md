@@ -19,3 +19,12 @@ Button: Check out
 
 4. Check out: Payment option paypal or googlepay
 Thank you for your support! Follow us for more (social icons)
+
+🌏 Welcome to the community 🌎 
+
+Harmony for Earth in songsfornature.wordpress.com 
+
+-----------------------------------------------------
+
+Let's monetize this product already! 😢 😭 🤣 No, seriously.
+Also, an open invite to musicians and eco conscious techy folks, if you wanna make a change, give us a shout out on Instagram @lexaholism 💚
