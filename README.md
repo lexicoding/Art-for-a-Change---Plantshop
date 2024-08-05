@@ -1,2 +1,2 @@
-# Art-for-a-Change---Plantshop
+# Art-for-a-Change-Plantshop
 We are recording a remote playlist 'Harmony for Earth' that brings together musicians who are passionate about creating positive change. 
